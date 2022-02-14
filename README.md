@@ -2,7 +2,7 @@
 
 I am currently study at Dian Nuswantoro University
 
-## Keep in touch with me :grin:
+## My Contact :grin:
 - Instagram : https://www.instagram.com/realrto7/
 - Telegram  : https://t.me/Realrto7
 
