@@ -1,9 +1,10 @@
-### Hi there 👋
+### Hello There :wave:
 
-I am currently study at Dian Nuswantoro University
+I'm currently study at Dian Nuswantoro University
 
-## My Contact :grin:
+## My Contact :point_down:
 - Instagram : https://www.instagram.com/realrto7/
 - Telegram  : https://t.me/Realrto7
 
-![](https://media.giphy.com/media/lReVblhSRtxXtfK81w/giphy.gif)
+<br>
+<img align="center" width="300" height="300" src="https://media.giphy.com/media/WTvcBCi87EgbuFwuHU/giphy.gif">
