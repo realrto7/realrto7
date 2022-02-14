@@ -6,4 +6,4 @@ I am currently study at Dian Nuswantoro University
 - Instagram : https://www.instagram.com/realrto7/
 - Telegram  : https://t.me/Realrto7
 
-![Up] (https://media.giphy.com/media/lReVblhSRtxXtfK81w/giphy.gif)
+![](https://media.giphy.com/media/lReVblhSRtxXtfK81w/giphy.gif)
